@@ -1,0 +1,1 @@
+==currently no support continous message like Alien Mark Zuckerbergs Whatsapp dumb fuck== but it will
